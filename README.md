@@ -4,8 +4,8 @@
 ### video
 - [想爱爱，就上有爱爱](https://www.uaa.com/) can-zh
 - [njav0](https://njav.me/zh) can-zh
-- [njav1](https://njav.tv/zh) can-zh
-- [njav2](https://njav.xyz/zh)
+- [njav2](https://njav.xyz/zh) can-zh
+- [njav1](https://njav.tv/zh)
 - [supjav](https://supjav.com/zh/)
 - [missav](https://missav.com/zh)
 ### novel
